@@ -22,7 +22,7 @@ Estou disposto e aberto para ofertas, principalmente como freelancer, então, po
 </p>
 
 No geral se quiser apenas entrar em contato ou dar uma ideia de projeto, também estou aberto, gosto de conversar e trocar ideias, quem sabe a gente não colabora em algum projeto não é? haha
-Se precisar de alguma ajuda, estarei pronto para compartilhar minhas ideias e ajudar com ideias também. Estamos aqui para aprender e se desenvolver juntos, isso incluí também ajudar em projetos.
+Se precisar de alguma ajuda, estarei pronto para compartilhar minhas ideias e ajudar com suas ideias também. Estamos aqui para aprender e se desenvolver juntos, isso incluí também ajudar em projetos.
 
 
 <!---
